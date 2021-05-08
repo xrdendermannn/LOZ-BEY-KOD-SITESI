@@ -1,1 +1,1 @@
-# LOZ-BEY-KOD-SITESI
+# lozbeykod
